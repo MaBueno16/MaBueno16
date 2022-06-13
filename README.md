@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=B41FF7&lines=Bom+dia+mor!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=52B846&lines=Wellcome+to+my+profile!)](https://git.io/typing-svg)
 
 <p align="center">
     <br>
